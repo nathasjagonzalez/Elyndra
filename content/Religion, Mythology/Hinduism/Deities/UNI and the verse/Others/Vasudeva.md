@@ -1,0 +1,1 @@
+#Hinduism Wife of [[Vasudeva]], Mother of [[Krishna]]

@@ -1,0 +1,1 @@
+#Hinduism Wife of Village Chief [[Nanda]], Saviour mother of [[Krishna]]
